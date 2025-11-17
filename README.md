@@ -2,7 +2,7 @@
 
 # Musikalisches und kreatives Arbeiten mit KI
 
-Für die Weiterbildung zur Verfügung gestelltes Beispiel Material
+Für die Weiterbildung zur Verfügung gestelltes Beispielmaterial
 
 # Tools
 
