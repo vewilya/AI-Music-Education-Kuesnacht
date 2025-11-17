@@ -1,0 +1,1 @@
+Slow baroque soprano aria, human voice singing, vocal solo with piano accompaniment, I-IV-V-I cadential progressions, andante tempo, legato singing, classical vocal performance
